@@ -1,2 +1,2 @@
 # server
-7=I|eZ*D
+a4fK+%[R
